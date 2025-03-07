@@ -1,6 +1,1 @@
-Thanks for downloading this template!
-
-Template Name: Dewi
-Template URL: https://bootstrapmade.com/dewi-free-multi-purpose-html-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+See busca talento en nuestro congregacion para el soporte de la página Web de nuestra Iglesia.
